@@ -20,10 +20,10 @@
 </p>
 
 <p align="center">
-"𝙸𝚝'𝚜 𝚘𝚟𝚎𝚛, 𝙰𝚜𝚑. 𝙸 𝚔𝚗𝚘𝚠 𝚎𝚟𝚎𝚛𝚢𝚝𝚑𝚒𝚗𝚐 𝚊𝚋𝚘𝚞𝚝 𝚢𝚘𝚞.
+"It's over, Ash. I know everything about you.
 </p>
 <p align="center">
-𝙱𝚎𝚌𝚞𝚊𝚜𝚎 𝙸'𝚖 𝚢𝚘𝚞𝚛 𝚊𝚗𝚌𝚎𝚜𝚝𝚘𝚛, 𝚢𝚘𝚞𝚛 𝚖𝚊𝚜𝚝𝚎𝚛, 𝚊𝚗𝚍... 𝚊 𝚐𝚘𝚍."
+Because I'm your ancestor, your master, and... a god."
 </p>
 
 #
