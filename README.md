@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-<img src="https://pixelbank.neocities.org/decome/wings/a63975ff.gif"> ​🇮​​🇹​❜​🇸​ ​🇴​​🇻​​🇪​​🇷​, ​🇦​​🇸​​🇭​. ​🇮​ ​🇰​​🇳​​🇴​​🇼​ ​🇪​​🇻​​🇪​​🇷​​🇾​​🇹​​🇭​​🇮​​🇳​​🇬​ ​🇦​​🇧​​🇴​​🇺​​🇹​ ​🇾​​🇴​​🇺​. ​🇧​​🇪​​🇨​​🇺​​🇦​​🇸​​🇪​ ​🇮​❜​🇲​ ​🇾​​🇴​​🇺​​🇷​ ​🇦​​🇳​​🇨​​🇪​​🇸​​🇹​​🇴​​🇷​, ​🇾​​🇴​​🇺​​🇷​ ​🇲​​🇦​​🇸​​🇹​​🇪​​🇷​, ​🇦​​🇳​​🇩​... ​🇦​ ​🇬​​🇴​​🇩​. <img src="https://pixelbank.neocities.org/decome/wings/20fd0f71.gif">
+<img src="https://pixelbank.neocities.org/decome/wings/a63975ff.gif"> - DISCLAIMERS - src="https://pixelbank.neocities.org/decome/wings/20fd0f71.gif">
 </p>
 
 #
