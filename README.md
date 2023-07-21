@@ -20,7 +20,7 @@
 </p>
 
 <p align="center">
-<img src="https://pixelbank.neocities.org/dividers/image287.gif">
+<img src="https://pixelbank.neocities.org/dividers/image138.gif">
 </p>
 
 <p align="center">
