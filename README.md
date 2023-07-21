@@ -1,15 +1,15 @@
 #
 
 <p align="center">
-    <img width="250" src="https://pixelbank.neocities.org/dividers/7936e2bf.gif" alt="">
+    <img width="200" src="https://pixelbank.neocities.org/dividers/7936e2bf.gif" alt="">
 </p>
 
 <p align="center">
-    <img width="500" src="https://files.catbox.moe/gxxmb3.png" alt="">
+    <img width="300" src="https://files.catbox.moe/gxxmb3.png" alt="">
 </p>
 
 <p align="center">
-    <img width="250" src="https://pixelbank.neocities.org/dividers/7936e2bf.gif" alt="">
+    <img width="200" src="https://pixelbank.neocities.org/dividers/7936e2bf.gif" alt="">
 </p>
 
 <p align="center">
@@ -20,7 +20,7 @@
 </p>
 
 <p align="center">
-    <img width="250" src="https://pixelbank.neocities.org/dividers/7936e2bf.gif" alt="">
+    <img width="200" src="https://pixelbank.neocities.org/dividers/7936e2bf.gif" alt="">
 </p>
 
 <p align="center">
