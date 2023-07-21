@@ -20,11 +20,11 @@
 </p>
 
 <p align="center">
-<img src="https://pixelbank.neocities.org/dividers/f02a774e.gif">
+<img src="https://pixelbank.neocities.org/dividers/image287.gif">
 </p>
 
 <p align="center">
-"It's over, Ash. I know everything about you.
+━━ "It's over, Ash. I know everything about you.
 </p>
 <p align="center">
 Because I'm your ancestor, your master, and... a god."
