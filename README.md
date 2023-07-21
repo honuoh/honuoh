@@ -1,11 +1,11 @@
 #
 
 <p align="center">
-<img width=444 src="https://files.catbox.moe/gxxmb3.png">
+<img width=300 src="https://files.catbox.moe/gxxmb3.png">
 </p>
 
 <p align="center">
-<img src="https://pixelbank.neocities.org/dividers/image287.gif">
+<img width=300 src="https://pixelbank.neocities.org/dividers/image287.gif">
 </p>
 
 <p align="center">
