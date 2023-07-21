@@ -5,11 +5,15 @@
 </p>
 
 <p align="center">
+    <img width="350" src="https://files.catbox.moe/7nnhnk.gif" alt="">
+</p>
+
+<p align="center">
 bjghjgbhkjihbnjuhukihjuoihiohuibhuhhgu i <3 k'
 </p>
 ㅤ
 <p align="center">
-    <img width="350" src="https://files.catbox.moe/71doty.png" alt="">
+    <img width="350" src="https://files.catbox.moe/7nnhnk.gif" alt="">
 </p>
 
 #
