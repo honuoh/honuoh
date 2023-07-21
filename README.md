@@ -1,11 +1,11 @@
 #
 
 <p align="center">
-    <img width="100" src="https://www.fightersgeneration.com/characters2/k-intro-walk.gif" alt="">
+    <img width="550" src="https://files.catbox.moe/9lsvwn.png" alt="">
 </p>
 
 <p align="center">
-    <img width="350" src="https://files.catbox.moe/7nnhnk.gif" alt="">
+    <img width="350" src="https://pixelbank.neocities.org/dividers/7936e2bf.gif" alt="">
 </p>
 
 <p align="center">
