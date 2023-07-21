@@ -13,21 +13,21 @@
 </p>
 
 <p align="center">
-<img src="https://pixelbank.neocities.org/decome/wings/b64cb377.gif"> ​🇮​​🇹​❜​🇸​ ​🇴​​🇻​​🇪​​🇷​, ​🇦​​🇸​​🇭​. ​🇮​ ​🇰​​🇳​​🇴​​🇼​ ​🇪​​🇻​​🇪​​🇷​​🇾​​🇹​​🇭​​🇮​​🇳​​🇬​ ​🇦​​🇧​​🇴​​🇺​​🇹​ ​🇾​​🇴​​🇺​.
+<img src="https://pixelbank.neocities.org/decome/wings/a63975ff.gif"> ​🇮​​🇹​❜​🇸​ ​🇴​​🇻​​🇪​​🇷​, ​🇦​​🇸​​🇭​. ​🇮​ ​🇰​​🇳​​🇴​​🇼​ ​🇪​​🇻​​🇪​​🇷​​🇾​​🇹​​🇭​​🇮​​🇳​​🇬​ ​🇦​​🇧​​🇴​​🇺​​🇹​ ​🇾​​🇴​​🇺​.
 </p>
 <p align="center">
-​🇧​​🇪​​🇨​​🇺​​🇦​​🇸​​🇪​ ​🇮​❜​🇲​ ​🇾​​🇴​​🇺​​🇷​ ​🇦​​🇳​​🇨​​🇪​​🇸​​🇹​​🇴​​🇷​, ​🇾​​🇴​​🇺​​🇷​ ​🇲​​🇦​​🇸​​🇹​​🇪​​🇷​, ​🇦​​🇳​​🇩​... ​🇦​ ​🇬​​🇴​​🇩​. <img src="https://pixelbank.neocities.org/decome/wings/e432e8ed.gif">
-</p>
-
-<p align="center">
-<img src="https://pixelbank.neocities.org/dividers/image138.gif">
+​🇧​​🇪​​🇨​​🇺​​🇦​​🇸​​🇪​ ​🇮​❜​🇲​ ​🇾​​🇴​​🇺​​🇷​ ​🇦​​🇳​​🇨​​🇪​​🇸​​🇹​​🇴​​🇷​, ​🇾​​🇴​​🇺​​🇷​ ​🇲​​🇦​​🇸​​🇹​​🇪​​🇷​, ​🇦​​🇳​​🇩​... ​🇦​ ​🇬​​🇴​​🇩​. <img src="https://pixelbank.neocities.org/decome/wings/20fd0f71.gif">
 </p>
 
 <p align="center">
-━━ "It's over, Ash. I know everything about you.
+<img src="https://pixelbank.neocities.org/dividers/image287.gif">
+</p>
+
+<p align="center">
+<img src="https://pixelbank.neocities.org/decome/wings/a63975ff.gif"> ​━━ 🇮​​🇹​❜​🇸​ ​🇴​​🇻​​🇪​​🇷​, ​🇦​​🇸​​🇭​. ​🇮​ ​🇰​​🇳​​🇴​​🇼​ ​🇪​​🇻​​🇪​​🇷​​🇾​​🇹​​🇭​​🇮​​🇳​​🇬​ ​🇦​​🇧​​🇴​​🇺​​🇹​ ​🇾​​🇴​​🇺​.
 </p>
 <p align="center">
-Because I'm your ancestor, your master, and... a god."
+​🇧​​🇪​​🇨​​🇺​​🇦​​🇸​​🇪​ ​🇮​❜​🇲​ ​🇾​​🇴​​🇺​​🇷​ ​🇦​​🇳​​🇨​​🇪​​🇸​​🇹​​🇴​​🇷​, ​🇾​​🇴​​🇺​​🇷​ ​🇲​​🇦​​🇸​​🇹​​🇪​​🇷​, ​🇦​​🇳​​🇩​... ​🇦​ ​🇬​​🇴​​🇩​. <img src="https://pixelbank.neocities.org/decome/wings/20fd0f71.gif">
 </p>
 
 #
