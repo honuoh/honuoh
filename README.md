@@ -1,15 +1,15 @@
 #
 
 <p align="center">
-    <img width="200" src="https://pixelbank.neocities.org/dividers/7936e2bf.gif" alt="">
+<img src="https://pixelbank.neocities.org/dividers/7936e2bf.gif">
 </p>
 
 <p align="center">
-    <img width="300" src="https://files.catbox.moe/gxxmb3.png" alt="">
+<img width=666 src="https://files.catbox.moe/gxxmb3.png">
 </p>
 
 <p align="center">
-    <img width="200" src="https://pixelbank.neocities.org/dividers/7936e2bf.gif" alt="">
+<img src="https://pixelbank.neocities.org/dividers/7936e2bf.gif">
 </p>
 
 <p align="center">
