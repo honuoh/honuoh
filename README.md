@@ -6,6 +6,8 @@
 
 <p align="center">
 <img src="https://pixelbank.neocities.org/decome/wings/a63975ff.gif"> val `she/her` + twenty one.
+</p>
+<p align="center">
 autistic + (biracial) black + isfp-a. <img src="https://pixelbank.neocities.org/decome/wings/20fd0f71.gif">
 </p>
 
