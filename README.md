@@ -1,7 +1,7 @@
 #
 
 <p align="center">
-    <img width="550" src="https://files.catbox.moe/brjcez.png" alt="">
+    <img width="100" src="https://www.fightersgeneration.com/characters2/k-intro-walk.gif" alt="">
 </p>
 
 <p align="center">
